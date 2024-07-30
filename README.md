@@ -1,16 +1,20 @@
-## Hi there 👋
+## lynezinha linda⭐
 
-<!--
-**alynesanttos/alynesanttos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome e alyne
+estou estudando no alura
+sou linda, perfeita e maravilhosa
 
-Here are some ideas to get you started:
+### para entrar em contato comigo 📫
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+00001136019029ps@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/68Au4NgLlxAAAAAC/sanrio-my-melody.gif)
+
+
+
+
+
+
+
+
+
